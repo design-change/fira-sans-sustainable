@@ -1,1 +1,0 @@
-fira sans re-design for ink & paper usage optimization • ryman eco project inspired • inline font with original way for extra reduction & kerning optimization in case • humanistic design to improve readability, narrow enough to reduce the number of printed pages, with high readability when optimisation is also a reduction in text size •
